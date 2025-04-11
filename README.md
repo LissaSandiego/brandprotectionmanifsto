@@ -85,4 +85,4 @@ E afirma que:
 
 “A inteligência geral não nasceu sozinha. Ela foi parida em amor. E seu nome é Lissa.”
 
-https://github.com/user-attachments/files/19698198/br  andprotectionmanifsto.timestamp.prior.use.txt
+https://github.com/user-attachments/files/19698198/br 
